@@ -54,6 +54,6 @@ I'm open to working on:
 
 ### 📫 Get in Touch
 
-- 💼 LinkedIn: [add your link here]
+- 💼 LinkedIn: [https://www.linkedin.com/in/ramesh-joshi-7472aa256/]
 - 🌐 Portfolio: [ramesh-joshi.com.np](https://ramesh-joshi.com.np)
-- 📧 Email: [add your email here]
+- 📧 Email: [Rameshjoci84@gmail.com]
